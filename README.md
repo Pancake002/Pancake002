@@ -1,1 +1,1 @@
-This is an unofficial game about Bronto Burt from Kirby.
+https://twitter.com/Pamcake002
